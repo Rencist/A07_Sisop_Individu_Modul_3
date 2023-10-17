@@ -30,6 +30,32 @@
 ![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/6cf265da-550f-4e4a-9506-74d7ee2a59ea)
 ![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/7ab9a013-b81b-443b-9696-93500f079c7e)
 
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/4623e595-8739-4077-a7ed-6f9f235674b4)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/bad840c6-c3bd-453d-8bb4-65c745225d3c)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/c60c3aae-73e8-4c4b-a292-bfe13f514b3a)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/771ab14f-261f-4e95-8d04-fe89e2b8749c)
+
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/75ab3c49-5aee-4699-ac74-cef5a2e61dd0)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/f84e8741-43eb-447c-95de-e2be1a6a1466)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/2a155da3-af44-479f-9391-68effdde65a9)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/b4d6b2df-9780-4558-a5c8-979e850d5b8c)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/ebe8734b-cb7a-4967-9537-3e9e380e244f)
+
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/18acb028-8054-48a9-843c-5df0dad76606)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/1e1cd0e0-d249-4da8-b73a-44cb717f819c)
+
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/26019a05-b50a-4c18-b2c3-4a2b0dbd23e0)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/08f79a42-174d-4f0b-8df3-2cd928fa7280)
+
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/c7300398-f07f-4805-87cd-7e23ce468a06)
+
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/98105205-6bff-4c6b-bf64-7a0401a35fb9)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/4589285f-6060-49c0-a6bb-2e1c1c4182a0)
+
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/eeb2bdec-bc1f-4d48-b401-4eb6766668eb)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/decf5d8c-3978-41d4-bdf6-29e0e40035b3)
+
+
 
 Anggota Kelompok A07 :
 | Nama | NRP |
