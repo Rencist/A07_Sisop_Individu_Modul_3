@@ -72,10 +72,19 @@
 ![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/a88e46b7-e668-48d9-a602-7d1480657a98)
 
 
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/825c0c15-a63b-48c3-9cc4-e72cb7bf8eda)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/eccd5c42-2a9e-4c1b-a568-2cefd0fe078e)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/30641943-8881-4398-a036-5f4da18d714e)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/3b06108b-b9f4-4db4-ad8e-4733544d2ca7)
 
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/15b5c534-e780-4a27-b9e6-94b682056abb)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/ad205c07-ea70-4a63-8584-6d2e13f34028)
 
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/71bc1e6f-32e6-4c36-8490-baa3800a7e55)
 
-
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/664efd7b-8389-4681-868f-d1ea72abd9e9)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/8e282ca9-5a06-4fb5-8271-03b287744e1b)
+![image](https://github.com/Rencist/A07_Sisop_Individu_Modul_3/assets/91055469/09858db8-953a-4138-ab5a-488c79f41aa7)
 
 
 
